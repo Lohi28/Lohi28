@@ -52,6 +52,7 @@ Contact
 📧 Email: lrbhf@umsystem.edu
 📞 Phone: (816) 210-4467
 🌐 LinkedIn: lohitha-regalla
+💻 GitHub: Lohi28
 
 
 <!---
