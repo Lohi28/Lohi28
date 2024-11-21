@@ -99,7 +99,7 @@ Telugu: Native Speaker
 
 📫HOW TO REACH ME
 
-📧 Email: lrbhf@umsystem.edu
+📧 Email: lohitharegalla328@gmail.com / lrbhf@umsystem.edu
 📞 Phone: (816) 210-4467
 🌐 LinkedIn: lohitha-regalla
 💻 GitHub: Lohi28
